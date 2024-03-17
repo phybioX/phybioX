@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @phybioX
+- 👋 Hi, I’m @phybioX, a Chinese man.
 - 👀 I’m interested in physics, biology and ai
 - 🌱 I’m currently learning ai
 - 📫 How to reach me : 1640200464@qq.com
 - 😄 Pronouns: El Psy Kongroo.
+- Looking for a PhD position with applications in medicine and physics...
