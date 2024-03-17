@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @phybioX
+- 👀 I’m interested in physics, biology and ai
+- 🌱 I’m currently learning ai
+- 📫 How to reach me : 1640200464@qq.com
+- 😄 Pronouns: El Psy Kongroo.
